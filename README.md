@@ -1,0 +1,1 @@
+# Daniel-Quiteque_Projeto_Final_Bootcamp_CDIA_Manutencao_Preditiva
